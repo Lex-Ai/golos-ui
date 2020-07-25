@@ -5,8 +5,6 @@ compress
 horror
 jekasds
 alte
-ekaterinavolkova
-vam
 joycasino
 id-mefklad
 antiekstremist
